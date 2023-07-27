@@ -1,4 +1,4 @@
-Chapter 10: What to Do If You Don't Get the Job
+What to Do If You Don't Get the Job
 ===============================================
 
 Not getting a job offer can be disappointing and disheartening. However, it's important to approach rejection as an opportunity for growth and to maintain a positive mindset. In this chapter, we will explore strategies and techniques to help you navigate the aftermath of not getting a job and move forward towards future success.

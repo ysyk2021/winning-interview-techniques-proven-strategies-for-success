@@ -1,4 +1,4 @@
-Chapter 1: Overview of the Book's Contents
+Overview of the Book's Contents
 ==========================================
 
 Welcome to "Winning Interview Techniques: Proven Strategies for Success"! In this chapter, we provide an overview of the book's contents and outline the valuable insights and strategies you can expect to find within its pages.

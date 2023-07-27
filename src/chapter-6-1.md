@@ -1,4 +1,4 @@
-Chapter 6: Techniques for Answering Difficult or Unexpected Questions
+Techniques for Answering Difficult or Unexpected Questions
 =====================================================================
 
 In this chapter, we delve into proven strategies for effectively handling difficult or unexpected questions during an interview. When faced with challenging inquiries, it's essential to remain calm, composed, and demonstrate your ability to think on your feet. This chapter provides you with valuable techniques to navigate through tough questions and leave a lasting impression.

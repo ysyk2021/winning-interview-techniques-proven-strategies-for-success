@@ -1,4 +1,4 @@
-Chapter 5: Conducting Research About the Company
+Conducting Research About the Company
 ================================================
 
 In this chapter, we explore the importance of conducting thorough research about the company before an interview. By understanding the organization's background, values, and goals, you can demonstrate your genuine interest and align yourself with the company's mission. This chapter provides proven strategies for effectively conducting research to enhance your chances of interview success.

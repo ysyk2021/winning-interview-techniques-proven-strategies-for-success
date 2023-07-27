@@ -1,4 +1,4 @@
-Chapter 6: Group Interviews
+Group Interviews
 ===========================
 
 In the hiring process, group interviews are becoming increasingly common as a way for employers to assess candidates' abilities to work effectively in a team setting. In this chapter, we will delve into strategies and techniques to excel in group interviews, allowing you to showcase your teamwork skills and stand out from the competition.

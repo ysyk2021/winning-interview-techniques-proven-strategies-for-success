@@ -1,4 +1,4 @@
-Chapter 7: Phone and Video Interviews
+Phone and Video Interviews
 =====================================
 
 In today's digital age, phone and video interviews have become increasingly common in the hiring process. In this chapter, we will explore strategies and techniques to excel in phone and video interviews, providing you with the confidence and preparation necessary to make a strong impression.
