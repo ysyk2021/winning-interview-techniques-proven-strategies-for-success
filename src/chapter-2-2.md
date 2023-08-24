@@ -1,5 +1,3 @@
-What to Expect During the Interview Process
-======================================================
 
 The interview process can be a nerve-wracking experience for job seekers. However, understanding what to expect during each stage of the process can help alleviate anxiety and increase preparedness. In this chapter, we explore the typical components of the interview process and provide valuable insights on how to navigate each step successfully.
 

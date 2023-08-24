@@ -1,5 +1,3 @@
-Creating a Compelling Elevator Pitch
-================================================
 
 An elevator pitch is a concise and persuasive summary of who you are, what you do, and what value you can bring to a potential employer or client. It is called an elevator pitch because it should be short enough to deliver during a brief elevator ride, grabbing the listener's attention and leaving a lasting impression. In this chapter, we will explore the key elements of creating a compelling elevator pitch that will help you stand out and make a memorable impact.
 

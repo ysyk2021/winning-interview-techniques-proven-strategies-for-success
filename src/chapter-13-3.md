@@ -1,5 +1,3 @@
-Navigating Applicant Tracking Systems
-================================================
 
 In this chapter, we will explore the essential strategies for effectively navigating Applicant Tracking Systems (ATS) during your job application process. ATS are software applications used by employers to manage and streamline their recruitment process. Understanding how ATS work and optimizing your application accordingly can significantly increase your chances of getting noticed by hiring managers. This chapter will guide you through the key steps to successfully navigate applicant tracking systems and advance in your job search.
 

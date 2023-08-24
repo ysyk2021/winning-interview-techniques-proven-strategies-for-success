@@ -1,5 +1,3 @@
-Controlling Your Own Nonverbal Cues
-==============================================
 
 In an interview, your nonverbal cues play a crucial role in conveying your confidence, professionalism, and overall suitability for the job. This chapter explores proven strategies for controlling your own nonverbal cues to make a positive and lasting impression on your interviewer. By mastering these techniques, you can enhance your chances of interview success.
 

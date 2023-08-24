@@ -1,4 +1,3 @@
-# Introduction
 
 Job interviews can be nerve-wracking experiences, but they are also opportunities to showcase your skills and impress potential employers. Winning Interview Techniques: Proven Strategies for Success is a comprehensive guide that explores the strategies and tactics you need to ace your next interview.
 

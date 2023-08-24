@@ -1,5 +1,3 @@
-Chapter 12: Mastering Nonverbal Communication
-=============================================
 
 Effective communication goes beyond what we say; it also includes our body language. In this chapter, we'll explore techniques for mastering nonverbal communication to create a positive first impression and communicate confidence and professionalism.
 

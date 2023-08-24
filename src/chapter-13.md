@@ -1,5 +1,3 @@
-Chapter 13: Leveraging Technology in Your Job Search
-====================================================
 
 In today's job market, leveraging technology is essential to maximize your chances of landing your dream job. In this chapter, we'll explore strategies and techniques for using technology to your advantage.
 

@@ -1,5 +1,3 @@
-Strategies for Staying Top-of-Mind with Hiring Managers
-==================================================================
 
 In this chapter, we will explore effective strategies for staying top-of-mind with hiring managers throughout your job search process. It is crucial to maintain a strong presence and leave a lasting impression on hiring managers to increase your chances of securing the desired job opportunity. Let's dive into some proven strategies:
 

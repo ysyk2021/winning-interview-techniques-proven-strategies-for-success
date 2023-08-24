@@ -1,5 +1,3 @@
-Summary of Key Points
-=================================
 
 The interview process can be daunting and overwhelming for job seekers, but with the right preparation and strategies, it can also be a chance to showcase skills and stand out from other candidates. In this book, we've explored proven interview techniques that can help job seekers succeed in any interview situation. Here are some key takeaways:
 

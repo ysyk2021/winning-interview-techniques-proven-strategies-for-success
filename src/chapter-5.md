@@ -1,5 +1,3 @@
-Chapter 5: Preparing for Common Interview Questions
-===================================================
 
 One of the most critical aspects of interview preparation is anticipating and preparing for common interview questions. In this chapter, we'll examine some of the most commonly asked interview questions and how to prepare thoughtful and relevant answers.
 

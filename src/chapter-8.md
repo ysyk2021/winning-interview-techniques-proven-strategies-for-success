@@ -1,5 +1,3 @@
-Chapter 8: Following Up After the Interview
-===========================================
 
 The interview process doesn't end when you walk out the door. Following up after an interview is a critical step in demonstrating professionalism and staying top-of-mind with hiring managers. In this chapter, we'll explore strategies for sending thank-you notes and follow-up emails, staying top-of-mind with hiring managers, and what to do if you don't get the job.
 

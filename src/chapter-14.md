@@ -1,5 +1,3 @@
-Chapter 14: Developing Your Own Winning Interview Technique
-===========================================================
 
 Interviewing is a skill that can be developed with practice and preparation. In this chapter, we'll explore how to develop your own winning interview technique that works for you.
 

@@ -1,5 +1,3 @@
-Chapter 11: Advanced Interviewing Techniques
-============================================
 
 In this chapter, we'll explore advanced interviewing techniques that can help you stand out from other candidates and increase your chances of success.
 

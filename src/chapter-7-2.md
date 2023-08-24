@@ -1,5 +1,3 @@
-Building Rapport and Connection with the Interviewer
-===============================================================
 
 When it comes to acing job interviews, building rapport and establishing a connection with the interviewer is crucial. This chapter will explore proven strategies for creating a positive impression, fostering rapport, and enhancing your chances of interview success.
 

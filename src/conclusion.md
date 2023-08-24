@@ -1,4 +1,3 @@
-# Conclusion
 
 Interviews can be nerve-wracking and stressful, but with the right preparation and strategies, you can increase your chances of success. In this book, we've explored proven techniques for acing your next interview, from researching the company to preparing for common questions.
 

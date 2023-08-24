@@ -1,5 +1,3 @@
-Chapter 9: Navigating Special Interview Circumstances
-=====================================================
 
 Not all interviews are created equal, and many job seekers may encounter special interview circumstances that require unique preparation and strategies. In this chapter, we'll explore how to navigate phone and video interviews, group interviews, and second-round and final interviews.
 

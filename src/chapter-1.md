@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Job interviews are a crucial step in the hiring process and can often determine whether or not you get the job. In this chapter, we'll explore why preparation and technique are essential for acing job interviews and provide an overview of the book's contents.
 

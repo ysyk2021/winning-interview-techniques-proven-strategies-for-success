@@ -1,5 +1,3 @@
-Chapter 10: Negotiating Salary and Benefits
-===========================================
 
 Negotiating salary and benefits is a crucial aspect of the interview process. In this chapter, we'll explore effective strategies for negotiating your compensation package to ensure you receive fair compensation for your skills and experience.
 
